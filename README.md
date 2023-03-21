@@ -1,4 +1,4 @@
-### Hi there 👋
+### Will update this page tomorrow.  👋
 
 <!--
 **ArataKido/ArataKido** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
